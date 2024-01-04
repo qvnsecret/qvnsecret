@@ -1,0 +1,3 @@
+- I'm ogqvnrvx the Owner & CEO of Square Up Discord bot.
+- My bot is trusted by 75+ servers.
+- Square Up was founded 1/1/2024!!
